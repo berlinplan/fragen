@@ -1,3 +1,5 @@
+references
+
 1. https://www.steuerklassen.com/gehalt/pflegehilfskraft/
 2. https://www.hotnewhiphop.com/621383-iggy-azaleas-onlyfans-earns-307k-in-24-hours-report
 3. https://influencermarketinghub.com/glossary/onlyfans/#:~:text=OnlyFans%20Takes%20a%2020%25%20Cut,a%20cut%20of%20those%20payments.
