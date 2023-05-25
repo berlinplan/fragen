@@ -1,458 +1,229 @@
-Please consider the following questions and note the gray text for additional information.
-1.	Better smartphones, a cure for cancer and the fight against hunger in Africa if slavery persisted?
-Benefits of slavery for world development: (224)
- 
-1.1	Improving Life in Africa:
-The slave trade encouraged international trade between Africa, the US and Europe. Numerous goods were traded with Africa in exchange for slaves. These products were subsequently used in Africa to improve the well-being of its people. In addition, the slave market attracted increasing numbers of European visitors who traded goods with Americans and Africans.
-1.2	Multiculturalism:
-When different countries interacted, they exchanged their culture. This contributed to the building of long-term relationships and the development of nations. In addition, the slave trade also led to intermarriage. People from different continents intermarried to produce mixed races.
- 
-1.3	free trade:
-Slavery contributed to free trade by providing free labor to European farms, increasing profitability and economic growth.
-1.4	Fast production:
-Slavery enabled rapid production in industry with efficient slave contributions to the manufacturing process.
- 
-1.5	Economic stability:
-Slavery served as a stabilizing force for the British economy during the colonial period as it took advantage of the economic benefits of enslaved labour.
-1.6	transport system:
-The slave trade fueled the rapid development of the transportation industry across the Atlantic and led to innovations in shipbuilding.
- 
-1.7	Job security:
-The master had to feed the slaves even if they got sick or got old. This was the main reason why some people went into slavery voluntarily. When work was not available, the master had to feed his slaves for future jobs.
-1.8	Exploration:
-The slave trade was one of the factors that contributed to exploration in Africa, Europe and the Americas. Merchants explored new places each time they visited a different market.
- 
-1.9	Development:
-Slaveholders saved money by not hiring employees, leading to increased profits and potential local development.
-Slavery played a significant role in the growth of the United States. (214).
-Colonization had a profound impact on development in western countries (215).
- 
-2.	Can roadblocks and polarization effectively solve the environmental crisis?
- 
-2.1	Is the blocking of Streets to be seen on Instagram and YouTube or to gain political power for one's group, an effective approach? Or would such measures polarize society in such a way that even possible effective solutions would no longer be heard? (223)
+1. https://www.steuerklassen.com/gehalt/pflegehilfskraft/
+2. https://www.hotnewhiphop.com/621383-iggy-azaleas-onlyfans-earns-307k-in-24-hours-report
+3. https://influencermarketinghub.com/glossary/onlyfans/#:~:text=OnlyFans%20Takes%20a%2020%25%20Cut,a%20cut%20of%20those%20payments.
+4. https://www.mein-pflegejob.de/blog/pflegehilfskraft/#:~:text=Aufgaben%20der%20Pflegehilfskraft,Toilette%20und%20bei%20hauswirtschaftlichen%20Arbeiten.
+5. https://nypost.com/2021/08/09/onlyfans-stars-make-270-times-more-than-the-average-worker/
+6. https://influencermarketinghub.com/glossary/onlyfans/#:~:text=OnlyFans%20Takes%20a%2020%25%20Cut,a%20cut%20of%20those%20payments.
+7. https://rewardfoundation.org/health/mental-effects-of-porn/
+8. https://obamawhitehouse.archives.gov/ondcp/ondcp-fact-sheets/how-illicit-drug-use-affects-business-and-the-economy
+9. https://www.watson.de/amp/!101543760
+10. https://www.researchgate.net/publication/352794763_Instagram_Sexualization_When_posts_make_you_feel_dissatisfied_and_wanting_to_change_your_body
+11. https://blog.hootsuite.com/instagram-demographics/
+12. https://thf_media.s3.amazonaws.com/2003/pdf/Bookofcharts.pdf
+13. https://www.theguardian.com/commentisfree/2022/dec/11/not-just-ignorance-that-stops-us-having-babies-also-poor-relationships
+14. https://www.weforum.org/agenda/2022/06/global-decline-of-fertility-rates-visualised/#:~:text=The%20Societal%20Impact-,Lower%20fertility%20rates%2C%20coupled%20with%20increased%20life%20expectancies%20around%20the,and%20a%20smaller%20global%20workforce.
+15. https://www.boeckler.de/de/magazin-mitbestimmung-2744-der-sozialstaat-ist-der-grosse-gewinner-5219.htm#:~:text=Der%20Sozialstaat%20ist%20verbl%C3%BCffenderweise%20der,betroffen%20als%20Menschen%20ohne%20Migrationshintergrund.
+16. https://commission.europa.eu/strategy-and-policy/priorities-2019-2024/promoting-our-european-way-life/statistics-migration-europe_de#:~:text=Neuansiedlung,Menschen%20aus%20Syrien%20und%20Afghanistan.
+17. https://www.studysmarter.co.uk/explanations/geography/migration-and-identity/consequences-of-migration/#:~:text=For%20origin%20countries%2C%20they%20may,Clash%2C%20Discrimination%20and%20Human%20Trafficking.
+18. https://www.bundesbank.de/de/service/finanzsanktionen/sanktionsregimes/-/iran-610216
+19. https://de.statista.com/statistik/daten/studie/386316/umfrage/aussenhandel-zwischen-deutschland-und-iran/#:~:text=Im%20Jahr%202021%20exportierte%20Deutschland,Millionen%20Euro%20aus%20dem%20Land
+20. https://www.yaclass.at/p/geografie-und-wirtschaftskunde/11-schulstufe/oesterreich-raum-gesellschaft-wirtschaft-19273/gesamtwirtschaftliche-leistungen-und-probleme-wirtschafts-und-sozialpolit_-19262/re-b5b8ff5e-8abc-46eb-931a-7e2d9dc10939
+21. http://www.fight-human-trafficking.org/ausbeutung/
+22. https://www.jstor.org/stable/2600299
+23. https://lifeclub.org/books/the-great-leveler-walter-scheidel-review-summary
+24. https://www.race.ed.ac.uk/all-the-devils-are-here-how-the-visual-history-of-the-haitian-revolution-misrepresents-black-suffering-and-death/#:~:text=Around%2075%2C000%20white%20French%20people,any%20acknowledgment%20of%20this%20disparity.
+25. https://www.khanacademy.org/humanities/whp-origins/era-6-the-long-nineteenth-century-1750-ce-to-1914-ce/64-transformation-of-labor-betaa/a/read-why-was-slavery-abolished-three-theories-beta
+26. https://cepr.org/voxeu/columns/inequality-total-war-great-leveller
+27. https://blog.kohlhammer.de/pflege/die-enorme-bedeutung-der-pflege-fuer-staat-und-gesellschaft/
+28. https://www.dazeddigital.com/science-tech/article/38717/1/onlyfans-is-the-site-where-porn-is-more-intimate-than-ever
+29. https://www.wf-lawyers.com/divorce-statistics-and-facts/
+30. https://www.pbs.org/newshour/world/iran-could-build-several-nuclear-weapons-un-says
+31. https://online.hbs.edu/blog/post/what-are-network-effects
+32. https://www.oecd.org/newsroom/inequality-hurts-economic-growth.htm
+33. https://www.state.gov/iran-sanctions/
+34. https://ana.press/fa/news/209681/%DA%86%D8%B1%D8%A7-%DB%B8%DB%B0-%D8%AF%D8%B1%D8%B5%D8%AF-%D8%B4%D8%B1%DB%8C%D9%81%DB%8C%E2%80%8C%D9%87%D8%A7-%D8%A7%D8%B2-%D8%A7%DB%8C%D8%B1%D8%A7%D9%86-%D9%85%DB%8C%E2%80%8C%D8%B1%D9%88%D9%86%D8%AF-%D8%AF%D8%A7%D8%B3%D8%AA%D8%A7%D9%86-%DB%8C%DA%A9-%D8%B9%D8%A7%D9%85%D9%84-%D9%86%D8%A7%D8%B4%D9%86%D8%A7%D8%AE%D8%AA%D9%87
+35. https://www.therecoveryvillage.com/process-addiction/porn-addiction/pornography-statistics/#:~:text=Today%2C%20porn%20addiction%2C%20or%20problematic,amount%20can%20be%20much%20higher.
+36. https://www.spectra-online.ch/de/spectra/news/%C2%ABSuchtkranke%20sind%20nicht%20schuld%20an%20ihrer%20Sucht,%20es%20ist%20ein%20gesamtgesellschaftliches%20Problem%20und%20wir%20reden%20von%20einer%20Mitverantwortung.%C2%BB-631-29.html
+37. https://www.cbsnews.com/amp/news/social-media-influencers-86-of-young-americans-want-to-become-one/
+38. https://www.statista.com/statistics/1110790/career-aspirations-of-uk-teens/
+39. https://www.spiegel.de/wirtschaft/unternehmen/iab-rekord-bei-zahl-der-offenen-stellen-deutschland-fehlen-2-millionen-arbeitskraefte-a-0641ee50-6354-40d9-9052-130d781da953
+40. https://www.brandwatch.com/blog/top-most-instagram-followers/
+41. https://www.kolsquare.com/en/blog/2022-germanys-top-10-influencers/
+42. https://sjdm.org/journal/13/13613a/supp.html
+43. https://www.cambridge.org/core/journals/judgment-and-decision-making/article/moral-identity-in-psychopathy/E51E502DF6E25F6BD1AE16F4D6D26865
+44. http://dyingwords.net/are-you-a-psychopath-take-this-test-and-find-out/
+45. https://www.corrections1.com/correctional-psychology/articles/inside-the-mind-of-a-psychopath-Wlus8ESBYBSh8fEZ/
+46. https://www.washingtonpost.com/news/on-small-business/wp/2016/09/16/gene-marks-21-percent-of-ceos-are-psychopaths-only-21-percent/
+47. https://bigthink.com/politics-current-affairs/apparently-our-best-presidents-have-all-been-unhinged/
+48. https://katehon.com/en/article/politics-and-psychopathy
+49. linkedin.com/pulse/psychopaths-political-power-rule-law-stephen-flood
+50. https://studyflix.de/biologie/was-ist-ein-soziopath-5305#:~:text=Soziopathen%20haben%20ihr%20Verhalten%20erlernt,irgendwelche%20realen%20Emotionen%20zu%20f%C3%BChlen.
+51. https://health.clevelandclinic.org/sociopath-personality-disorder/#:~:text=Sociopathy%20can%20be%20both%20a,the%20world%2C%E2%80%9D%20he%20says.
+52. https://www.psychologytoday.com/us/blog/5-types-people-who-can-ruin-your-life/201804/are-narcissists-and-sociopaths-increasing
+53. https://timesofindia.indiatimes.com/blogs/O-zone/why-are-sociopaths-on-the-rise/
+54. https://medium.com/@worstonlinedater/tinder-experiments-ii-guys-unless-you-are-really-hot-you-are-probably-better-off-not-wasting-your-2ddf370a6e9a
+55. https://www.statista.com/statistics/417654/us-online-dating-user-numbers/
+56. https://news.ycombinator.com/item?id=31823294
+57. https://www.reginademeo.com/2012/01/30/the-rise-of-dating-coaches-and-matchmakers/
+58. https://pubmed.ncbi.nlm.nih.gov/24750070/
+59. https://www.psychologytoday.com/us/blog/insight-is-2020/201410/sex-and-the-psychopath#:~:text=short%2Dterm%20relationships.-,The%20psychopath%20frequently%20engages%20in%20promiscuous%20sexual%20behavior%20or%20has,more%20promiscuity%20and%20less%20commitment.
+60. https://www.wmn.de/health/psychologie/so-erkennst-du-pick-up-artists-13-anzeichen-id17723
+61. https://thf_media.s3.amazonaws.com/2003/pdf/Bookofcharts.pdf
+62. https://www.theguardian.com/lifeandstyle/2022/feb/13/how-online-dating-has-changed-the-way-we-fall-in-love#:~:text=Studies%20show%20that%20relationships%20formed,other%20less%20than%20a%20week.
+63. https://www.mindcontroversy.com/disadvantages-democracy/
+64. https://journals.sagepub.com/doi/full/10.1177/1043463120904051
+65. https://www.nytimes.com/interactive/2016/11/10/us/politics/red-blue-divide-grew-stronger-in-2016.html?mtrref=cachedview.com&assetType=PAYWALL&mtrref=www.nytimes.com&gwh=B8E5B774EB1B4748FC50DDB3E648EBCA&gwt=pay&assetType=PAYWALL
+66. https://www.trumanlibrary.gov/education/three-branches/what-president-can-do-cannot-do
+67. https://www.bundestag.de/parlament/aufgaben
+68. https://www.carnegiecouncil.org/media/article/why-democracy-is-the-best-weve-got
+69. https://de.wiktionary.org/wiki/wer_mit_dem_Teufel_essen_will,_braucht_einen_langen_L%C3%B6ffel#:~:text=H%C3%B6rbeispiele%3A-,wer%20mit%20dem%20Teufel%20essen%20will%2C%20braucht%20einen%20langen%20L%C3%B6ffel,sich%20anzupassen%2C%20vorsichtig%20zu%20sein
+70. https://www.englishclub.com/ref/esl/Sayings/Quizzes/Badness/He_who_sups_with_the_devil_should_have_a_long_spoon_842.php
+71. https://rasekhoon.net/sms/show/535590/%D9%8A%D8%A7-%D9%85%D9%83%D9%86-%D8%A8%D8%A7-%D9%BE%D9%8A%D9%84-%D8%A8%D8%A7%D9%86%D8%A7%D9%86-%D8%AF%D9%88%D8%B3%D8%AA%D9%8A-%D9%8A%D8%A7-%D8%A8%D9%86%D8%A7-%D9%83%D9%86-%D8%AE%D8%A7%D9%86%D9%87-%D8%A7%DB%8C-%D8%AF%D8%B1-%D8%AE%D9%88%D8%B1%D8%AF-%D9%BE%D9%8A%D9%84-%D8%B3%D8%B9%D8%AF%D9%8A
+72. https://geekflare.com/apps-kyc-identity-verification/
+73. https://www.lawdepartmentmanagementblog.com/the-largest-law-departments-among-us-companies-in-the-fortune-500/
+74. https://www.cnbc.com/2019/07/12/why-you-cant-sue-fortune-100-companies.html
+75. https://www.investopedia.com/can-t-pay-your-bills-now-what-5179654
+76. https://www.strafrecht-anwalt-mannheim.de/rechtsgebiete/betrug/
+77. https://www.cnbc.com/2022/04/14/how-companies-like-amazon-nike-and-fedex-avoid-paying-federal-taxes-.html#:~:text=In%20fact%2C%20at%20least%2055,%2C%20Nike%2C%20HP%20and%20Salesforce.
+78. https://best-hashtags.com/hashtag/activism/
+79. https://www.academia.edu/11625528/Beware_The_Psychopath_My_Son_
+80. https://www.systemsthinker.com/interests/systemsthinking/humansystems/pathocracy.shtml
+81. https://www.theguardian.com/science/head-quarters/2015/jun/10/can-an-online-quiz-spot-a-psychopath
+82. https://psychopathyis.org/screening/#:~:text=But%20no%20psychopathy%20score%20can,in%20some%20settings%20than%20others.
+83. https://www.britannica.com/dictionary/society
+84. https://askananthropologist.asu.edu/top-questions/why-do-humans-cooperate-and-live-groups
+85. https://www.nber.org/digest/jun16/where-are-isiss-foreign-fighters-coming
+86. https://www.theatlantic.com/magazine/archive/2015/03/what-isis-really-wants/384980/
+87. https://www.mercycorps.org/blog/facts-syria-crisis#:~:text=Around%206.6%20million%20Syrians%20have,addressing%20their%20needs%20since%202012.
+88. https://reporting.unhcr.org/iraq
+89. https://reporting.unhcr.org/
+90. https://www.al-islam.org/greater-sins-volume-2-sayyid-abdul-husayn-dastghaib-shirazi/twenty-seventh-greater-sin-avoiding
+91. https://islamqa.info/en/answers/13363/can-muslims-settle-in-kaafir-countries-for-the-sake-of-a-better-life
+92. https://www.pewresearch.org/religion/2017/11/29/europes-growing-muslim-population/#:~:text=An%20estimated%203.7%20million%20Muslims,estimated%20980%2C000%20Muslim%20refugees%20who
+93. https://www.sigar.mil/interactive-reports/what-we-need-to-learn/
+94. https://www.journalofdemocracy.org/articles/the-collapse-of-afghanistan/
+95. https://foreignpolicy.com/2022/10/19/afghanistan-refugees-resettlement-taliban-migration/#:~:text=Many%20have%20been%20arbitrarily%20detained,resettlement%20in%20the%20United%20States.
+96. https://www.pbs.org/newshour/world/a-historical-timeline-of-post-independence-ukraine
+97. https://www.theguardian.com/news/2015/feb/04/welcome-to-the-most-corrupt-nation-in-europe-ukraine
+98. https://www.tandfonline.com/doi/pdf/10.1080/1356788980442
+99. https://www.reuters.com/article/idIN345717388420151230
+100. https://thewiki.in/network/blog/view/4165/cosmetic-industry-in-ukraine
+101. https://datantify.com/knowledge/top-25-biggest-industries-in-ukraine/
+102. https://www.usatoday.com/story/news/world/2022/02/25/russia-invasion-ukraine-bans-male-citizens-leaving/6936471001/#:~:text=%22In%20particular%2C%20it%20is%20forbidden,take%20this%20information%20into%20consideration.%22
+103. https://cream-migration.org/ukraine-detail.htm?article=3573
+104. https://mnewsafrica.com/from-a-toothless-bulldog-to-a-biting-commission-a-new-day-for-the-lacc/
+105. https://jamestown.org/program/russias-strange-combination-of-conscription-and-mobilization/
+106. https://time.com/6235503/one-love-armband-qatar-world-cup/
+107. https://www.consilium.europa.eu/en/press/press-releases/2023/03/20/human-rights-violations-in-iran-eu-sanctions-additional-eight-individuals-and-one-entity/#:~:text=They%20consist%20of%20an%20asset,telecommunications%20is%20also%20in%20place.
+108. https://www.gtai.de/de/trade/saudi-arabien/wirtschaftsumfeld/deutschlands-wichtigster-absatzmarkt-in-der-mena-region--786214#:~:text=Saudi%2DArabien%20exportierte%202020%20Waren,64%20der%20wichtigsten%20deutschen%20Bezugsm%C3%A4rkte.
+109. https://www.oecd.org/general/focus/focus-restoring-trust-in-government.htm
+110. https://pro-contra.at/Multikulturelle-Gesellschaft-Liste
+111. https://arxiv.org/abs/2303.07563
+112. https://www.nytimes.com/interactive/2016/11/10/us/politics/red-blue-divide-grew-stronger-in-2016.html?mtrref=cachedview.com&assetType=PAYWALL&mtrref=www.nytimes.com&gwh=B8E5B774EB1B4748FC50DDB3E648EBCA&gwt=pay&assetType=PAYWALL
+113. https://en.wikipedia.org/wiki/File:2020_US_presidential_margins_by_county.svg
+114. https://www.aeaweb.org/articles?id=10.1257%2Fjep.31.2.211&fbclid=IwAR04My3aiycypMJKSI58e84gDvdrodsB9fqCycH9YfepWDDDwT--fZnVPvo;%20https://www.nyu.edu/about/news-publications/news/2019/january/fake-news-shared-by-very-few--but-those-over-65-more-likely-to-p.html
+115. https://www.science.org/doi/10.1126/science.169.3947.778  
+116. https://www.deutschlandfunk.de/moscheen-in-deutschland-fromm-unauffaellig-und-gefaehrlich-100.html
+117. https://www.boeckler.de/de/magazin-mitbestimmung-2744-der-sozialstaat-ist-der-grosse-gewinner-5219.htm#:~:text=Der%20Sozialstaat%20ist%20verbl%C3%BCffenderweise%20der,betroffen%20als%20Menschen%20ohne%20Migrationshintergrund
+118. https://www.khabaronline.ir/amp/1709288/
+119. https://www.scotsman.com/news/scotland-lags-europe-iq-league-2470181
+120. https://www.eghtesad100.ir/%D8%A8%D8%AE%D8%B4-%D8%AC%D8%A7%D9%85%D8%B9%D9%87-79/14638-%D8%AF%D9%88%D8%B1%D8%A7%D9%86-%D9%81%D8%B1%D8%A7%D8%B1-%D9%85%D8%BA%D8%B2%D9%87%D8%A7-%DA%AF%D8%B0%D8%B4%D8%AA-%D8%A8%D9%87-%D8%AE%D8%B7%D8%B1-%D9%85%D9%88%D8%AC-%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D8%AA-%D9%86%DB%8C%D8%B1%D9%88%DB%8C-%DA%A9%D8%A7%D8%B1-%D8%B1%D8%B3%DB%8C%D8%AF%DB%8C%D9%85
+121. https://snn.ir/fa/news/631313/%DA%86%D8%B1%D8%A7-%DB%B8%DB%B0-%D8%AF%D8%B1%D8%B5%D8%AF-%D8%B4%D8%B1%DB%8C%D9%81%DB%8C%E2%80%8C%D9%87%D8%A7-%D8%A7%D8%B2-%D8%A7%DB%8C%D8%B1%D8%A7%D9%86-%D9%85%DB%8C%E2%80%8C%D8%B1%D9%88%D9%86%D8%AF-%D8%AF%D8%A7%D8%B3%D8%AA%D8%A7%D9%86-%DB%8C%DA%A9-%D8%B9%D8%A7%D9%85%D9%84-%D9%86%D8%A7%D8%B4%D9%86%D8%A7%D8%AE%D8%AA%D9%87
+122. https://vajiramias.com/mains-daily-questions/q-corruption-destroys-the-moral-fabric-of-society-/5e459a451d5def4f3c89ad75/
+123. https://www.wf-lawyers.com/divorce-statistics-and-facts/
+124. https://familyfocusblog.com/why-families-are-important-to-society/
+125. https://psychologydictionary.org/traditional-marriage/
+126. https://tawkify.com/blog/from-the-experts/30-fascinating-dating-statistics-to-help-you-find-love-in-2022/#:~:text=39%25%20of%20male%2Dfemale%20relationships,love%20is%20becoming%20more%20common.
+127. https://www.pewresearch.org/religion/2017/11/29/europes-growing-muslim-population/
+128. https://www.muslimisch-in-ostdeutschland.de/regionale-informationen/muslim_innen-in-ostdeutschland/
+129. https://www.pewresearch.org/religion/2015/04/02/sub-saharan-africa/
+130. https://www.cfr.org/backgrounder/understanding-sharia-intersection-islam-and-law#:~:text=In%20Islam%2C%20it%20refers%20to,that%20collectively%20form%20the%20Sunna.
+131. https://foreignpolicy.com/2023/03/20/uyghur-genocide-nury-turkel-interview-commissioner-religious-freedom-china-beijing/
+132. https://www.aljazeera.com/news/2019/12/16/what-you-should-know-about-indias-anti-muslim-citizenship-law
+133. https://thewire.in/politics/price-of-the-modi-years-book-excerpt
+134. https://www.fr.de/politik/joe-biden-muslim-ban-kritik-einwanderungspolitik-usa-donald-trump-90236784.html
+135. https://www.dailysabah.com/politics/eu-affairs/governments-legalize-islamophobia-in-europe-report
+136. https://www.thegospelcoalition.org/article/islam-fastest-growing-religion/
+137. https://www.quran.mu/70-major-sins-in-islam.html
+138. https://news.un.org/en/story/2020/01/1055681
+139. https://www.derstandard.de/story/2000143398433/usa-holen-im-chip-krieg-gegen-china-weitere-laender-an
+140. https://www.swr.de/swraktuell/baden-wuerttemberg/verbrenner-aus-chipmangel-100.html
+141. https://thejollofdiary.substack.com/p/the-matthew-effect-relating-to-music
+142. https://www.simplypsychology.org/pluralistic-ignorance.html
+143. https://www.psychologytoday.com/intl/blog/neuroscience-in-everyday-life/202006/the-brain-under-the-influence-power#:~:text=Research%20has%20shown%20that%20power,brain%20areas%20and%20power%20status.
+144. https://www.ethicssage.com/2018/04/do-the-ends-justify-the-means.html
+145. https://www.readingeagle.com/2022/10/19/everyday-ethics-do-the-ends-justify-the-means/
+146. https://study.com/learn/lesson/coolidge-effect-concept-purpose.html
+147. https://quillette.com/2022/05/28/why-not-polygamy/
+148. https://quillette.com/2022/05/28/why-not-polygamy/
+149. https://www.newsweek.com/open-relationship-couples-monogamy-polyamory-1716022
+150. https://www.thecut.com/2023/02/what-bumble-a-k-a-feminist-tinder-promised.html
+151. https://www.researchgate.net/publication/341556592_Experimental_Evidence_for_Sex_Differences_in_Sexual_Variety_Preferences_Support_for_the_Coolidge_Effect_in_Humans
+152. https://www.psychologytoday.com/us/blog/talking-apes/202104/do-men-really-want-more-sex-partners-women-do?amp
+153. https://www.globalpolicyjournal.com/blog/05/01/2023/west-uses-double-standards-interview-amrita-narlikar
+154. https://www.reuters.com/article/us-iran-nuclear-khamenei-idUSKBN1WO15H
+155. https://www.jpost.com/iranian-threat/news/poll-71-percent-of-iranians-want-nuclear-arsenal
+156. https://www.nonproliferation.org/wp-content/uploads/npr/npr_19-1_sherrill_iran_bomb.pdf
+157. haaretz.com/2013-11-06/ty-article/poll-sanctions-iranians-want-nukes/0000017f-e39a-d7b2-a77f-e39fa2d90000
+158. https://www.aparat.com/v/zmYNS
+159. https://www.entekhab.ir/fa/news/140263/%D9%86%D8%AA%D8%A7%DB%8C%D8%AC-%D8%AC%D8%A7%D9%84%D8%A8-%D9%86%D8%B8%D8%B1%D8%B3%D9%86%D8%AC%DB%8C-%D8%B2%D8%A7%DA%AF%D8%A8%DB%8C-%D8%A7%D8%B2-%D9%85%D8%B1%D8%AF%D9%85-%D8%A7%DB%8C%D8%B1%D8%A7%D9%86-%D8%AF%D8%B1-%D9%85%D9%88%D8%B1%D8%AF-%D8%BA%D9%86%DB%8C-%D8%B3%D8%A7%D8%B2%DB%8C-%D8%A8%D9%85%D8%A8-%D8%A7%D8%AA%D9%85-%D9%88-%D8%B1%D9%88%D8%AD%D8%A7%D9%86%DB%8C
+160. https://www.jpost.com/Iranian-Threat/News/Iranians-support-nuclear-program-despite-sanctions
+161. https://cissm.umd.edu/sites/default/files/2021-02/CISSM%20Feb%202021%20and%20Oct%202020%20-%20Trend%20Tables.pdf
+162. https://www.aljazeera.com/news/2017/4/20/mahmoud-ahmadinejad-disqualified-from-iran-elections
+163. https://iranprimer.usip.org/blog/2022/aug/17/iran-poll-nuclear-deal
+164. https://www.iranintl.com/en/202304226363
+165. https://news.gallup.com/poll/165743/iranians-say-sanctions-hurting-livelihoods.aspx?utm_source=alert&utm_medium=email&utm_campaign=syndication&utm_content=morelink&utm_term=All%20Gallup%20Headlines
+166. https://exxpress.at/schwedens-premierministerin-integration-von-migranten-ist-gescheitert/
+167. https://www.dictionary.com/browse/integration#:~:text=definitions%20for%20integration-,integration,to%20make%20a%20unified%20whole
+168. https://www.merriam-webster.com/dictionary/unite
+169. https://www.unodc.org/lpo-brazil/en/frontpage/2016/11/07-drug-users-cannot-be-treated-as-criminals.html
+170. https://aviaryrecoverycenter.com/victim-vs-victim-mentality-addiction/
+171. https://www.standard.co.uk/hp/front/ps10-000-a-week-trade-of-drug-dealers-6334829.html
+172. https://www.sciencedirect.com/topics/neuroscience/psychopathy
+173. https://www.academia.edu/11625528/Beware_The_Psychopath_My_Son_
+174. https://www.britannica.com/story/whats-the-difference-between-a-psychopath-and-a-sociopath-and-how-do-both-differ-from-narcissists
+175. https://www.apa.org/monitor/2022/03/ce-corner-psychopathy#:~:text=What%20is%20psychopathy%3F,F.%20M.%2C%20Psychiatric%20Times%2C%20Vol.
+176. https://www.destatis.de/EN/Themes/Society-Environment/Population/Current-Population/_node.html
+177. https://bigthink.com/neuropsych/psychopath-traits/
+178. https://www.timesofisrael.com/khamenei-iran-doesnt-want-nuclear-bomb-but-us-couldnt-stop-us-if-we-did/
+179. https://www.marketwatch.com/story/us-military-is-the-largest-employer-in-the-world-2015-06-17
+180. https://worldpopulationreview.com/country-rankings/us-enemy-countries
+181. https://www.rbth.com/history/329557-cutting-beards-undressing-men-peter-the-great-reforms
+182. https://dash.harvard.edu/bitstream/handle/1/42004235/201903%20AKGUL-DOCUMENT-2019.pdf?sequence=4
+183. https://www.cambridge.org/core/books/iranian-masculinities/male-dress-reforms-under-reza-shah/D32F149C12DBFB5802766AA16F64EBE1
+184. https://www.japan-experience.com/plan-your-trip/to-know/understanding-japan/westernization
+185. https://wp.nyu.edu/mind/2021/02/27/why-do-we-compare-ourselves-to-others/#:~:text=Comparisons%20are%20a%20normal%20part,on%20how%20we%20measure%20up.
+186. https://www.earth.com/news/western-butterfly-populations-are-steadily-vanishing/
+187. https://stmuscholars.org/pablo-escobar-robin-hood-or-drug-dealer/
+188.  https://fa.wikifeqh.ir/%D8%B3%D9%86%D8%AA%E2%80%8C%D9%87%D8%A7%DB%8C_%D9%82%D8%B1%DB%8C%D8%B4
+ 189. https://www.welt.de/politik/deutschland/plus243782209/Berlin-Wie-Parallelgesellschaften-die-Hauptstadt-zerfleddern.html
+190. https://dictionary.cambridge.org/dictionary/english/moral
+191. https://www.amnesty.org.uk/saudi-arabia-human-rights-raif-badawi-king-salman
+192. https://www.psychologytoday.com/intl/blog/becoming-solutionary/201911/whats-wrong-debates?amp
+193. https://www.science.org/content/article/world-athletics-banned-transgender-women-competing-does-science-support-rule
+194. https://www.rfa.org/english/news/china/doping-02032022091047.html/ampRFA
+195. https://www.magicalquote.com/seriesquotes/psychopaths-crazy-fully-aware/
+196. https://youtu.be/sqh25tcld5A
+197. https://blogs.lse.ac.uk/brexit/2017/02/20/the-british-asian-vote-for-brexit-contains-a-few-surprises/
+198. https://fa.wikifeqh.ir/%D8%AA%D8%B2%D8%A7%D8%AD%D9%85
+199. http://large.stanford.edu/courses/2013/ph241/xie2/#:~:text=The%20main%20issue%20is%20that,the%20nuclear%20waste%20extremely%20difficult.
+ 200. https://hawzah.net/fa/Hadith/View/31398/%D8%B2%DA%A9%D8%A7%D8%AA-%D8%AF%D8%A7%D9%86%D8%B4%D8%8C%D9%86%D8%B4%D8%B1-%D8%A2%D9%86-%D8%A7%D8%B3%D8%AA
+201. https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html
+202. https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/
+203. https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html
+204. https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.
+205. https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html
+206. https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html
+207. https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.
+208. https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html
+209. https://www.bbc.com/news/world-asia-41174689.amp
+210. https://www.nytimes.com/interactive/2018/10/02/us/politics/trump-family-wealth.html
+211. https://greatergood.berkeley.edu/article/item/the_biology_of_the_modern_political_divide
+212.https://greatergood.berkeley.edu/article/item/what_is_the_true_cost_of_polarization_in_america
+213.https://greatergood.berkeley.edu/article/item/why_inequality_is_bad_for_the_one_percent
+214. https://www.gilderlehrman.org/history-resources/teaching-resource/historical-context-was-slavery-engine-american-economic-growth#:~:text=By%201840%2C%20the%20South%20grew,basis%20for%20American%20economic%20growth.
 
+215. https://encyclopedia.pub/entry/33093
+216. https://www.scientificamerican.com/article/3-d-printers-could-help-spread-weapons-of-mass-destruction/
+217. https://www.vedantu.com/english/meaning-and-definition-of-hypocrite
+218. https://www.lifestyleasia.com/kl/style/fashion/fashion-brands-support-black-lives-matter/amp/
+219. https://www.brandingmag.com/2013/08/15/is-luxury-branding-bad-for-society/
+220. https://pubmed.ncbi.nlm.nih.gov/23815455/
+221. https://www.foxnews.com/politics/iranian-dissidents-seeking-meeting-with-trump.amp
+222. https://www.jstor.org/stable/44879170
+223. https://www.loc.gov/classroom-materials/elections/right-to-vote/voting-rights-for-african-americans/
+224. https://www.myprosandcons.com/pros-and-cons-of-slavery/
+225. https://www.moroccoworldnews.com/2023/05/355371/mohammed-is-the-most-popular-baby-name-in-berlin#:~:text=Rabat%20%2D%20Mohammed%20ranked%20as%20the,position%20in%20the%20latest%20ranking.
+226. https://asiatimes.com/2018/05/the-secret-asian-influence-on-the-west-and-on-westernization/
+227. https://www.bartleby.com/essay/Western-Culture-And-Its-Influence-On-Asian-F3CMF9W3FVDX
 
-2.2	Are e-cars environmentally friendly?
-E-cars need ten times more chips than petrol or diesel vehicles. The Chips Act, passed by Joe Biden, limits US technology involvement in semiconductor production. As technology manufacturers prioritize profit, poorer countries depend on importing technology, perpetuating a cycle of wealth inequality that benefits the rich and leaves the poor behind. This contributes to growing inequality (139, 140).
- 
-3.	Hashtag #woke #awareness #equality #stopasianhate, credible?
-Luxury brands like Louis Vuitton and Gucci support social justice movements on social media (#equality, #blacklivesmatter), but also sell luxury goods to signal status. (218, 219, 222).
-3.1	Fighting against skin color discrimination, but making products for high-class society - a contradiction in terms?
-Hypocrisy: A hypocrite is essentially characterized by behavior contrary to what one claims to believe or feel (217).
- 
-3.2	follow, subscribe, comment and like, why?
-3.3	support me in the fight against inequality by helping me buy a Tesla, makes sense?
- 
-3.4	How does supporting a social media activist who promotes pollution and global inequality help fight injustice?
-Social Media Activism: Get maximum exposure for your Instagram activism with these top hashtags: (78)
-#activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), # love (4%), #change (4%), and #nonprofit (4%) #climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo.
- 
-4.	Is the freedom of drug dealers justifiable?
-In most societies, drug dealers are outlawed by law, as drug abuse can lead to addiction, mental health problems, violence, and the breakdown of society. This has high social health, economic and family costs. However, drug users should not be treated as criminals as they are suffering under circumstances beyond their control. However, it is known that drug dealers nonetheless make significant sums of money, amounting to hundreds of thousands of euros per year. (8,169,170,171).
- 
-4.1	Is it moral to make money through drug trafficking for charity?
-Pablo Escobar, a Colombian drug lord and leader of the Medellín cartel, which controlled up to 80% of international cocaine, supported the community by building schools, sports fields, donating significant sums of money to charity, and constructing homes (187).
-4.2	Is it legitimate that some drug dealers claim that addiction is self-inflicted because the right medication and dosage can cure certain diseases?
-Opium has legitimate medicinal uses. (208)
- 
-5.	Social media not completely harmful, users' own fault, convincing argument?
-5.1	Is it acceptable for influencers and pornography creators to claim that individuals are responsible for their addiction and should be aware of what they consume, despite the documented impact of social media such as mental health issues, cyberbullying, misinformation, negative behavior, impaired social interactions, decreased productivity, polarization, impact on self-image and exposure to inappropriate content, and privacy concerns? (207)
- 
-5.2	Is it fair that a social media star earns up to 300 times more than a nursing assistant who earns around 1500 euros a month? (1,4,5)
-Activities on platforms like OnlyFans have been shown to have negative impacts such as societal harm, mental health impairments and rising divorce rates. Nonetheless, top earners can make enormous sums of money in a short period of time on these platforms, leading to significant income differentials compared to average workers, including caregivers who help people reach their physical, psychological and social potential. (2,3,4,5,6,7,28,29).
-
-5.3	Does drug trafficking offer self-empowerment, emancipation and financial independence to disadvantaged social groups?
-“The cultural scientist and feminist Madita Oeming sees OnlyFans as a new opportunity for self-empowerment. Women and men on OnlyFans are independent from studios or producers and have full control over their content and prices. There is also emancipatory potential in profit. "Earning that much money yourself can also save you from financial dependency and toxic relationships" (9).
-Porn addiction affects a significant percentage of adults, particularly young men and women who regularly consume pornography. Taking collective responsibility is crucial in tackling this societal problem. (35, 36).
- 
-6.	Are all doner kebab sellers terrorists?
-Kebab Terror: Who can be held accountable when a person's family tragically lose their life in xxxistan at the hands of a military power? Should it be the bomb, the pilot, the plane, the semiconductor maker, the tool maker for that semiconductor, or even the kebab vendor who fed the workers at the tool company?
-6.1	Is it possible to act morally without having defined values?
-Morality: standards of behavior; principles of right and wrong. (190)
-The lack of clear values hampers moral action, enables corruption and undermines societal morality in psychopathic democracies. (122)
-6.2	Are the current rules enough to judge the morality of a trade?
-While some people rely on religious leaders for moral guidance, others follow Kant's Golden Rule, or consequentialist principles, which define the ethics of a
-Judge action based on favorable outcomes. However, religious and political psychopaths often justify their actions with claims of positive outcomes, revealing the lack of a universal definition of morality.
- 
-6.3	Can a custom values voting app do away with institutionalized religion?
-The dilemma:
-Kill one to save several others	End: save 7	• Moral: Due to the society decision in the app
-• Immoral: Society Decision: Killing causes more damage than not rescuing.
-	Medium: kill one	
-
-Kill one to save humanity	End: save humanity	• Moral: An emergency triggers an app notification so everyone on the planet can vote.
-• Immoral: Due to the society decision in the app.
-	Medium: kill one	
-
-Olympic sports competitions	End: Pride in victory	• Moral: All measures to gain social pride are acceptable.
-• Immoral: In today's sporting competitions, young athletes are at increased risk of overuse injuries due to specialization, while commercialization turns athletes into marketing products. Match-fixing and doping cast doubt on the integrity of the results, as profitability takes precedence over fairness in tournaments of the highest caliber. (194)
-	Medium: To beat opponents from poor countries competitively, be it with doping or with child training terror.	
-
-transgender in women let sports competitions	End: Gender Justice	• Moral: All measures to gain social pride are acceptable.
-• Immoral: since commercialized sports competitions are immoral.
-	Medium: Transgender in Women's Sports (193)	
-
-Torturing a bomber	End: defuse bomb, save your family and 1000 others.	• Moral: Limited torture to obtain information is acceptable, but no longer.
-• Immoral: Torture is always wrong.
-	Medium: Obtain information from a terrorist in 10 hours using effective torture methods, with an 80% success rate.	
-
-Breaking stranger's window to save the dog	End: Rescue the trapped dog from the car.	• Moral: Not saving a life is more damaging than entering a private space. Only necessary damage is justified, such as breaking the window to save the dog, but setting the whole car on fire is not correct.
-• Immoral: Damaging property of others is immoral.
-	Medium: Break car window, enter private room.	
-
-dishonesty in elections	End: save lives	• Moral: All measures to gain power to help others are acceptable.
-• Immoral: The harm caused by systematic lying in elections outweighs any potential benefit of saving lives later.
-	Medium: lies	
-
-Atomic Freedom	End: prevent a possible war and save millions	• Moral: If the majority of all people think it best, then using nuclear bombs against civilians is morally justified.
-• Immoral: The damage caused by nuclear war outweighs any potential benefit.
-	Medium: Kill thousands of civilians with a nuclear bomb	
-
-Professional skinny boxer	End: entertainment	• Morally: if the passer-by agreed to it voluntarily, then it's his own fault.
-• Immoral: Putting people in a coma, even with their consent, is immoral.
-	Medium: Approach a random passerby on the street and beat them into a coma after getting their consent to fight.	
-
-High tech through slavery	End: cure cancer, eliminate hunger	• Moral: When the majority, including people in impoverished regions of the Middle East, Africa, South America and South Asia who lack adequate infrastructure for luxury self-driving electric vehicles, willingly accept being exploited for the benefit of a few, then it becomes moral considered reasonable to do so.
-• Immoral: Due to the society decision in the app
-	Medium: High-tech advancement based on exploitation and inequality.	
-
-doner kebab terrorist	End: Spreading democracy to other countries.	• Moral: Due to the society decision in the app
-• Immoral: Attacking another country to spread democracy, despite excessive social unity, is immoral, both for the attacking country and for its supporters, including the kebab seller.
-	Medium: Start wars to change foreign governments.	
-
-YouTube Interviews	End: establish justice	• Moral: All measures to gain power to establish justice are acceptable.
-• Immoral: Prioritizing the least harmful behavior to solve a problem.
-	Medium: Tackle diverse subjects, challenge unprepared people on the street with provocative questions, conduct polarizing casting interviews and debates, and edit videos as desired to achieve viral fame and money on platforms like YouTube, TikTok, and Instagram.	
-
-contradiction	End: Development of a voting app for equality	• Moral: the least harmful behavior to achieve equality.
-• Immoral: Due to the society decision in the app
-	Medium: Print out this content and distribute it to people on the street, or reach a wider audience by going viral with controversial YouTube videos, or employing tactics to make it a bestseller as a book on platforms like Amazon.	
-
-Social Media Activism	End: establish justice	• Moral: social media is the least harmful behavior to achieve equality.
-• Immoral: There are enough less harmful ways to fight inequality than social media activism, debate, polarization and supporting companies like Google and YouTube that impose sanctions on impoverished countries. (192)
-	Medium: Creating content on social media, achieving online success by honing conversational skills, applying sophistication and improving cognitive skills.	
-
-Aim higher through TikTok	End: minimize inequality.	• Moral: The least harmful behavior to achieve equality.
-• Immoral: There are enough less harmful ways to fight inequality
-	Medium: write a book about justice and promote it and make it a bestseller on platforms like Spotify, YouTube, Instagram, Amazon, Twitter, TikTok and TV, and even use marketing tricks like the Matthew Effect (141)	
-
-7.	Why do ideological groups like IRGC Quds, ISIS and Al-Qaeda superior to modern armies?
-Determination and ideological motivation, strong values and flexible structures define such groups and contrast with the contradictory morals of hierarchical modern armies.
-8.	Are residents of modern societies like Germany a "society"?
- 
-• Society is the coexistence of people in organized communities with common laws, traditions and values. Collaboration is vital to human survival as it allows us to thrive in large groups, work together effectively and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. (83)
-• In modern societies, LGBTQIA2S+ rights are considered non-negotiable, yet symbolic unity is disregarded, as evidenced by the departure from the One Love gang. they impose severe sanctions on human rights violators, but maintain close ties with the most prominent abusers. In addition, they wage wars under the pretense of promoting democracy, despite their commitment to world peace. (106, 107,108,153)
- 
-8.1	In a war, would humans defend a psychopathic system and make sacrifices?
-Around 30,000 fighters from 85 countries joined ISIS, an organization with strong religious values. About 10 million Syrians, Iraqis and individuals from neighboring countries, mostly young Muslim men, fled the region. Islamic teachings consider flight from jihad (war) to be a major sin, classified as the twenty-seventh sin. The Prophet of Islam also expressed his disapproval of Muslims settling among Christians and Jews. (85, 86, 87, 88, 89, 90, 91)
-8.2	Is a society valid if its members lack common values?
-Over a million young Afghans fled Afghanistan after the fall of the Afghan Republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West could not prevent the fall of the Afghan republic once US troops withdrew. President Ashraf Ghani, who had promised to stay and protect his people, fled the capital by helicopter to Uzbekistan, contrary to his earlier promises. (93, 95)
- 
-8.3	Despite martial law, 8.2 million people fled Ukraine. What would the numbers be without the ban?
-Ukraine was ranked among the most corrupt nations, with The Guardian calling it “the most corrupt nation in Europe” (97). The level of corruption in Ukraine is comparable to countries in sub-Saharan Africa such as Uganda (99). Along with monopoly and lack of transparency, moral collapse is a major factor contributing to corruption in Ukraine (104). Despite these challenges, the beauty industry in Ukraine is thriving as Ukrainians devote a significant portion of their income to cosmetic products (100). The main industries in Ukraine include banks, cafes, grocery stores, beauty and clothing stores (101). The Russian army is made up of contract personnel and volunteers, while Ukrainian male citizens aged 18–60 face restrictions on leaving the country (102). Nevertheless, there are over 8 million Ukrainian refugees in Europe.
-#### How does a voting app build the first human society?
-People of similar values such as Buddhists, Hindus, Christians, Muslims, atheists and Westerners can come together and form a group.
-9.	What is "Übergesellschaft" aka "Oversociety"?
- 
-All societies are part of a larger super-society.
-• If Society 1, 2, 3, Christian, Hindu, Chinese, Islamic and Atheist societies all share the common value of banning nuclear weapons, then all societies must adhere to it.
-• If society owns and maintains 3 nuclear bombs, the super society must decide how to react, be it by punishment, isolation or even attack. American, Western, Muslim, or African values are not prioritized when making decisions about supersociety.
- 
-9.1	Can international inequality be resolved within supersociety?
- 
-Without corrupt politicians, each individual has the power to take action against a society that harms others.
- 
-• For example, if society 6 introduces a psychopathic economy that leads to inequality, an aging population, migration, a loss of workforce, family problems, increased intercontinental flights and growing polarization, the supersociety must decide how to deal with this behavior as it is detrimental to everyone involved.
-• Society 1: 60% adhere to Islamic values, which include wearing a headscarf, abstaining from alcohol, avoiding premarital sex and not having open relationships.
- 
- 
-• Society 2: 70% adhere to xxx values, which allow alcohol consumption and premarital sex, but not open relationships.
-• Society 11: 75% adhere to Western values, including freedom of clothing, food and agency. Societies merge when they share the same values.
- 
-By uniting Buddhist societies in Asia and South America under a common value system, it becomes possible to create a unified nation.
- 
-10.	Cultural inspiration or multicultural fraud?
-Comparison is part of human cognition and can promote personal growth (185). When a society excels, its positive values can inspire and influence other societies. Cultural influences between Asia and the West were diverse, with notable contributions such as the mathematical zero and the binary code (226).
-10.1	How did cultural inspiration come about in the past?
-Western influences had a significant impact on Eastern culture, shaping aspects such as food, fashion, lifestyle, and governance (227). Ataturk, Tsar Peter I, Iranian Reza Shah, and Japan have all experienced varying degrees of Westernization and modernization (182, 181, 183, 184).
- 
-11.	Multicult i: a tolerant and open-minded society or polarized parallel societies?
- 
-• Multiculturalism is often seen as a means of promoting cultural exchange, tolerance, openness and new ideas. However, studies suggest that this leads to social tensions, cultural clashes, polarization, marginalization and language problems.
-• bcm (bounded confidence model) describes consensus-like opinion dynamics in which agents only interact if their opinions are sufficiently similar. (110, 111)
-• The free exchange of information, social media and debates can contribute to group polarization. (112,113)
- 
-• People with similar views tend to follow, share and comment on each other's posts. Discussing racial attitudes with people who hold similar attitudes can significantly widen the gap between high and low prejudice groups. This interaction between extremists can further widen the divide and contribute to the formation of parallel societies. (114,115,116)
- 
-11.1	Why does cultural dialogue often lead to tribalism?
- 
-• The exchange of ideas and debates can lead to increased polarization.
-• The decline in the percentage of people befriending or marrying people with different political views reflects how social media has contributed to polarization.
- 
-• Strong religious beliefs or the practice of religious customs are not necessarily indicative of extremism. However, studies suggest that support for terrorism in Muslim-majority countries is related to mosque attendance rather than frequency of individual prayers or compliance with food bans. Similar patterns can be seen among far-right Jewish extremists in Israel.
-• Nationalism and tolerance of autocratic leaders are increasing around the world, possibly in response to globalization. Research suggests that when the rich do not interact with the poor or when the poor have limited contact with the middle class, the well-being of all is adversely affected. (211,212,213)
- 
-11.2	Can multiculturalism contribute to international inequality?
- 
-• Multiculturalism is essential to the survival of psychopathic economies and brings tremendous economic benefits.
-• Germany is the biggest winner. According to Brücker in 2013, without immigration, the potential labor force in Germany would drop by around 40% by 2050. (117)
- 
-11.3	Do the countries of origin of the migrants also benefit?
- 
-• Immigration can lead to a drop in the average IQ in the countries of origin. Studies have shown that Scotland, for example, has the lowest average IQ in the UK and compares poorly to most European countries. (119)
-• Over 80% of intelligent third world students migrate to developed countries; research shows. (121)
-• A survey conducted by a Job Vision Center found that 77% of third world workers are willing to migrate. (120)
-• International organizations estimate that each young migrant of early working age costs his country of origin US$120,000. (118)
- 
-11.4	Is multiculturalism a consequence of psychopathic economics?
- 
-• Would individuals still seek refuge if the economic differences between the third world and the industrialized world were eliminated?
-• Despite its potential for polarization and inequality, psychopathic economies often benefit from multiculturalism.
- 
-11.5	Has the integration of migrants failed?
-Sweden: "Integration of migrants has failed" (166)
-Integration: the act of unification into an integral whole (167)
-Combine: implies some amalgamation or mingling with consequent loss of identity of each entity (168)
-People from poor countries migrate to developed nations where their high-tech products are more likely to be used, particularly by the US Army, which often operates in the migrants' countries of origin. Although migrants resist accepting the values of people from psychopathic systems that have led to the erosion of their own population, culture and values, they are already fully integrated into the psychopathic system as they live and work in a system that perpetuates inequality (Psychopathegration). (179,180,186)
-11.6	Why does business favor psychopathically integrated populations over organic ones?
-Migrants' diminished affinity with their original values increases their susceptibility to psychopathic integration.
-Even psychopathically integrated populations, like sociopaths, have learned their behavior and are created through life experiences. they are able to feel emotions, but usually cannot control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51)
-Indian, Pakistani and Asian populations in the UK surprised London by voting in favor of Brexit, suggesting greater Euroscepticism within these communities than previously thought. (197)
-Iranian migrants have organized protests outside of Iran, demanding tougher sanctions against their homeland. (221)
- 
-12.	Why does democracy always end in nuclear war?	 
-• Although democracy is considered to be the best political system, it also has disadvantages: divisive debates, corruption, lack of protection for the common man, divide-and-conquer tactics, unfair business practices, craving for power, media abuse and rising inequality. Power dynamics in social hierarchies affect empathy, with higher-status individuals showing less accuracy in empathizing with lower-status individuals. (63, 138, 220, 65).
-• 	Psychopathy is a severe personality disorder characterized by antisocial behavior, insidiousness, irresponsibility, and a lack of empathy. In order not to turn democracy into a pathocracy, it is crucial to prevent psychopaths from gaining power, as there are no limits to their rise to the top. (64, 68, 79, 80, 172).
- 
-• 	Political and economic systems provide an ideal environment for psychopaths to thrive. Approximately 1% of the general population, including 15% of prisoners, 21% of CEOs and many US Presidents, exhibit psychopathic traits. Aristotle warned over two millennia ago about the vulnerability of democracies to fostering psychopaths. In the last fifty years, psychopaths have gained significant control over every branch of government. (44, 45, 46, 47, 49, 173, 175)
-• 	Many successful psychopaths hold leadership positions in large corporations and in politics, allowing them to take advantage of democratic organizations. Late bill payments can have serious financial consequences for individuals, including late payment interest, credit damage and even imprisonment. On the contrary, companies that often find ways to avoid taxes have legal departments that deal with lawsuits. (73, 74, 75, 76, 77, 177).
- 
-• 	If someone is unable to pay their rent, how would the modern executive, legislature and judiciary, responsible for creating billionaires and funded by taxpayers, deal with this situation?
-• 	The New York Times claimed Donald Trump was a millionaire by the age of eight. This has never happened in all of human history, as considerable wealth has always come with its own problems and insecurities. (210)
- 
-• 	Suppose someone inherits 3,000 apartments. Current psychopathic system, helps her expand her housing stock to 6,000 units. Then she passes it on to her child, who increases it to 10,000 units.
-• 	Preventing psychopaths from gaining power is a challenge as there is no reliable test to identify a psychopath (82).
- 
-13.	How do your Instagram likes lead to nuclear war?
-Why are psychopathic systems, consumer culture and social media leading to nuclear catastrophe?
- 
-13.1	40% of the new generation would rather have an influencer than a doctor, why?
-Why should young people prefer lower-paid jobs like nursing assistants to jobs like influencers, YouTubers or gamers where you have the potential to make a lot of money? Today's young generation mostly aspires to become a social media influencer; 86% in the US and 40% in the UK choose this career path. Does this contribute to the shortage of almost two million workers in Germany? (37,38,39)
-13.2	What are the benefits of social media influencers worth millions to society?
-Cristiano Ronaldo (496M followers) Lionel Messi (373M followers) Kylie Jenner (372M followers) Selena Gomez (356M followers) Kim Kardashian (333M followers) Khloé Kardashian (279M followers) ( 40th ) or in Germany bibisbeautypalace, Julienco, Lisa and Lena Mantler, Montana Black, Pia Wurzbach, Pamela Reif, Dagibee, Youneszarou
-• Instagram sexualizes society.
-• Instagram is used by children.
-• Early sexual activity leads to unstable relationships and marriages in adulthood, leading to lower birth rates and an aging population. (10, 11, 12, 13, 14).
-
-13.3	How do an aging population and labor shortages contribute to international inequality and exploitation?
-Labor and skilled labor shortages in industrialized countries with an aging population can lead to economic collapse in third-world countries from which migrants originate. This situation leads to economic disadvantages, the loss of qualified professionals (especially in the health sector) and social problems for children who are left behind or do not grow up in large families. Remittances and money transfers can be blocked or subject to UN sanctions, while poor countries often have negative trade balances with developed countries. Negative trade balances contribute to unemployment and capital outflow. Exploitation, as defined by Marxist theories, involves the inappropriate use of labor and resources, particularly the appropriation of another's labor power, and contributes to greater international inequality (15,16,17,18,19,20,21,22).
-13.4	Why are violent convulsions the only solution to reduce international inequality?
-Studies of the global history of inequality suggest that peaceful means have never been effective in reducing it. Examples include the use of violent tactics such as carpet bombing, atomic bombs, slave rebellions and wars that have reduced social inequality. French colonization in Haiti ended after the Haitian slave rebellion, which led to the Haitian massacre. Likewise, the end of slavery in the United States was driven by slave rebellions and economic factors. The Second World War also contributed to a significant reduction in income and wealth inequality in many countries. (23,24,25 26).
-13.5	Can economic sanctions, brain drain, youth migration and inequality prompt a country to resort to violent measures?
-If everything becomes flat, how can the world and the environment be exploited on a large scale? Could Iran's uranium enrichment to build multiple nuclear weapons or North Korea's 100-kiloton nuclear bomb potentially lead to an end to sanctions and equality? (30,209)
- 
-14.	Is the freedom to use a nuclear bomb acceptable?
-Over the years, the Iranians have always shown their strong support for their country's nuclear program. Support was 85% in 2006 and 71% in 2010. A 2013 Gallup poll found that despite sanctions, 84% of Iranians said they wanted nuclear weapons. A 2013 Zogby poll also found that a majority (84.5%) opposed ending uranium enrichment and ballistic missile testing (83.4%). Responsibility for the sanctions varied between respondents: 46% blamed the US, 13% blamed the Iranian government and 12% pointed it out to the UN and EU, while 16% were unsure. (155, 156, 157, 158, 159, 160, 161, 163, 165).
-
-
-14.1	Why would leaders in psychopathic regimes never use a nuclear bomb, but marginalized groups outside the psychopathic power might?
-Experts warn that advances like 3D printing are making it easier for small groups to covertly create weapons of mass destruction. Meanwhile, those in power now would be less likely to use it. Contrary to misconceptions, psychopaths are fully aware of the consequences of their actions; You are not crazy. In 2013, Iran's religious supreme leader issued an irrevocable fatwa outlawing the development and use of nuclear weapons under Islamic law. Since then, Mahmoud Ahmadinejad, a strong supporter of Iran's nuclear program, has been banned from all Iranian elections. (154, 162, 163, 164, 178, 195, 216).
- 
-15.	Can an election app solve the 2,500-year-old problem of psychopathy in democracy?
-New smartphones offer advanced verification methods like fingerprint and face scanning for tasks like online banking, enabling secure transactions of large amounts of money. (72) Because of the challenge of identifying psychopaths in a society, non-hierarchical systems could be put in place. As the saying goes: "He who dines with the devil needs a long spoon" (69, 70).
- 
-15.1	Can an app replace politicians, MPs, presidents, governors, and other coveted positions that attract psychopaths?
-Presidential responsibilities include drafting treaties, vetoing and signing bills, representing the nation in foreign negotiations, enforcing laws, proposing new laws, leading a political party, entertaining foreign guests, serving the Recognition of foreign countries and the granting of pardons. Parliamentarians make laws and oversee the work of the government. (66.67)
-15.2	Is a gradual reduction and replacement of the existing psychopathic structure possible?
-Breaking down hierarchies is key to reducing inequality. Can a smartphone app be the right platform to address important issues, or should smartphones primarily focus on social media?
-Current democracies can phase in an antipsychopathy app without requiring revolutionary change. A beta or pilot project can be tested in a village of 100 people.
- 
-15.3	Why is it better to keep your own money than let psychopaths do it?
-An interactive voting app can include a dedicated comment section that presents both the pros and cons and allows users to vote for their preferred arguments.
-examples
- 
-1. Should a monthly payment be mandatory for ARD and ZDF?
-2. Should taxpayers' money be prioritized for police protection of vulnerable groups such as women and the elderly, rather than protecting capital and tackling impoverished renters and arresting Amazon debtors?
-3. Should sanctions be imposed on Russia, Saudi Arabia, the US or China for human rights violations?
-4. Who should be taxed more?
-• Firefighter, nursing assistant or teacher?
-• YouTubers, Instagrammers, TikTokers or porn actors?
- 
-
-5. Election example in a village with 100 inhabitants:
-User 76: Is tree planting necessary to counteract the drought in the village?
-↓
-Yes (63%) 		No (37%)	 
-→User 4: Study confirms nature's role in mental health and benefits children. (20 votes)
-→User 74: tree planting: cost €30, investment in water system €100/month (shared by 100 people). Rather support the forest. (20 votes)
- 
-→User 22: Birds thrive in tree-rich environments. (12 votes)
-→User 12: Tree planting is expensive and our current number of trees is sufficient. (17 votes) 
-Result: 63% voted in favor
- 
-
-Which company?
-
-→ User 14: Affordable tree planting by Company XXX at €20 per tree.
-→User 20: Green Companies YYY charges €30 per tree, avoiding cars
-→ + Offer your recommendations
-→ Cancel voting, company could not be found.
-→ Time extension to find other companies
-
- 
-Result: Company XXX selected. Order created and shipped automatically.
- 
-Week 1: Company XXX has completed 25% of the work and is claiming 25% of the payment. Pictures and videos are available.
-•	Accept? / Reject?
-Week 2: Company XXX is 100% complete.
-•	Accept? / Reject?
-After each acceptance, €10 is automatically sent to Company XXX 
-The system needs further development, but can be more effective than even low-corruption countries such as Germany, the Netherlands, Norway and Sweden, where corruption can occur in both large and smaller projects such as airports.
- 
-16.	Is there a way to have a non-psychopathic economy without turning to communism?
- 
-Can equal treatment of employees in a company affect quality, work ethics, effectiveness and efficient use of resources?
-Although communism never worked, the most social system in the world (Germany) has the highest quality of industry and production.
-If millionaires were taxed appropriately for all the harm they caused (environment, inequality, brain drain, forced migration, travel, and ad-supported consumption), would anyone still be able to own empires like Microsoft, Tesla, and Amazon?
- 
-16.1	Why is it necessary to include an economic sector in the election app?
- 
-Incentivizing individuals with a percentage of losses and wins rather than fixed salaries increases motivation. For example, each person receives a base amount of 2% (~€2000) per month, but can earn additional shares through exceptional performance, requests or online votes.
-Non-hierarchical corporations that are more sustainable to the world and the environment can be favored by society through lower taxes determined by voting.
-The acceptance of selfishness, self-interest and higher earnings promotes more competition, productivity and sustainability.
- 
-16.2	How does selfishness lead to equality?
- 
-Egoists who are looking for maximum joie de vivre:
- 
-• 	to enable themselves to lead fulfilling lives, strive for equality in the workplace and fairness to the world and the environment.
-• 	prioritize equality as a means to ensure long-term security and cleanliness in societies, thus preventing revolution and theft.
-
-• 	Defying global inequality due to the potential threat of nuclear attack.
-• 		uphold sustainable values, abstain from harmful substances and behaviors, and promote stable family units. This reduces dependency on imported labor, mitigates inequality, prevents social unrest and slows the emergence of psychopathic multiculturalism and parallel societies. 
- 
-
-17.	How to stop the Islamization of Europe?
-Mohammed was the most popular name for boys in Berlin in 2022 (225). Sweden could have a Muslim population of 31% by 2050, Germany could have 20% and in big cities like Berlin, Düsseldorf or Cologne this could rise to 60%. It is possible that the concept of Islamic Sharia could become more important as an expression of Berlin's growing Muslim population. This growth of Islam is not limited to Europe, as it is currently the fastest growing religion in India, the US, China and sub-Saharan Africa (127, 128, 129, 130).
-17.1	How have big states tried to stifle the growth of Islam?
- 
-• 	China: hormone therapy on Muslims (genocide on the Chinese Uyghurs)
-• 	India: Anti-Muslim Laws. New Citizenship Act, Disturbed Areas Act. ghettoize Muslims.
-• 	USA: Muslim ban.
-• 	The European Court of Justice has allowed bans on religious dress in countries such as Austria, Belgium and France where hijab and niqab are banned (131,132,133,134,135).
- 
-
-17.2	Why is Islam the fastest growing religion in the world?
-The growing number of Muslims is mainly due to higher birth rates in Muslim families, not new converts to Islam (136)
-17.3	What role do stable marriages and families play in combating the spread of Islam?
-The values and civilization of society depend on the fundamental role of the family (123,124)
-Some statistics on divorce rates:
- 
-• 	Early sexual activity and multiple partners increase the risk of unstable marriages.
-• 	Women who lost their virginity in their teens are more than twice as likely to divorce within the first five years of marriage than women who have waited.
-• 	Women with six or more premarital sex partners are almost three times less likely to be in a stable marriage.
-• 	Women who live in multiple relationships are 40% more likely to divorce than women who don't.
-• 	When mothers work while husbands contribute minimally to household chores and childcare, the risk of divorce almost doubles.
-• 	Facebook contributes to one-third of divorce cases studied, while addiction to pornography is a factor in 56% of divorces.
-• 	Happily married parents reduce the risk of divorce by 14%, while divorced and remarried parents increase it by 91%.
-• 	Children of divorce are more likely to marry someone who has also been divorced.
-• 	Approximately 50% of marriages in the US end in divorce or separation. Currently, 15% of adult women in the US are divorced or living apart, compared to less than 1% in 1920.
-• 	The average length of a first marriage ending in divorce is 8 years and for second marriages 7 years.
-• 	If both partners have been married before, the likelihood of divorce is 90% higher.
-• 	A strong religious belief reduces the risk of divorce by 14%.
-• 	School dropouts have a 13% higher risk of divorce, while college dropouts have a 13% lower risk.
-• 	People with a “below average” IQ are 50% more likely to get divorced.
-• 	Meeting your spouse in high school, college or grad school reduces the likelihood of divorce by 41%, while meeting in bars increases it by 24%.
-• 	The divorce rate for couples with children is up to 40% lower than for couples without children. The birth
-Having a child before marriage increases the risk of divorce by 24%.
-• 	Couples where only one smoker is 76-95% more likely to divorce, and even couples where both smokers are 53% more likely to divorce than non-smoker couples.
-• 	Every liter of alcohol consumed increases the risk of divorce by 20%.
-• 	Video game addiction is cited as a major factor in nearly 15% of divorce filings.
-• 	Being a friend with someone who is divorcing increases the likelihood of divorce by 147% and having a divorced sibling increases the likelihood by 22%.
-• 	Working with someone who is in the process of divorcing increases a married person's likelihood of divorce by 75%.
-• 	Professions with the highest rates of divorce: celebrities (67%), dancers (43%), bartenders (39%), massage therapists (38%), gaming cage workers (35%), and gaming service workers (32%)
-• 		Professions with the lowest divorce rates: farmers, clergy, veterans and agricultural engineers. In these professions, the divorce rates are between 1% and 7%.
- 
-17.4	Do stable family values align with religious values? (137)
-Could acceptance of Islamic/religious values be an effective means of countering the spread of Islam gaining influence around the world?
-Values are defined by individuals in the voting app, similar to religion but without institution and corruption.
-
-
-17.5	Does "religion" offer the most sustainable freedom?
-Studies show that respecting and defining certain factors leads to stable relationships, leading to sustainability and equality.
-Similar to religious values, monogamy is the most enduring and stable form of relationship for individuals and families.
-In the face of aging populations and problems with societal values, is promoting stable families the most effective way to promote global equality and resilience?
- 
-18.	Sexual Freedom and Open Relationships: Freedom?
-If a freedom harms others, is it sustainable?
-18.1	Which criteria are decisive for starting a stable family? (red flags)
-Warning Signs of Stable Relationships: When someone
- 
-• Had 	multiple partners before marriage or was sexually active in their teens.
-• 	Uses alcohol, drugs or tobacco.
-• 	Deals with pornography, social media and gambling addiction.
-• Has 	many friends or family members who are divorced or not in a committed relationship.
-• 	Engages in jobs that involve the body, entertainment, and appearance.
-• Looking for 	partners in bars and clubs as well as dating apps. (~40%) (126)
-• 	Approaches strangers on the street with sexual intent. (Missing inhibitions)
- 
-19.	Do women prefer polygynous societies?
-The argument for women's freedom of choice in polygyny assumes that in polygynous societies they would have autonomy to choose their mates. Furthermore, it is assumed that the rights, position and freedoms of women in traditions of monogamy are not restricted by the institution itself. (147)
-19.1	Do Dating Apps Empower or Disempower Women?
-Online dating apps claim to empower women and promote sexual equality. (150)
-19.2	How do psychopathic dating platforms contribute to international inequality?
-Online dating has been linked to an increase in sexual activity. Repetitive sexual activity leads to higher turnover rates in sexual partners, which can lower birth rates and lead to an aging population. (13,14,61,62)
-Psychopaths tend to thrive in online dating environments as they engage in promiscuous sexual behavior and short-term marital relationships. (59)
-19.3	How do dating apps contribute to open relationships and polygyny?
-Dating apps are growing in popularity, attracting millions of users. They allow the top 5% of men to connect with 95% of women, leading to more sexual activity and an increase in open relationships. This, in turn, often leads to polygyny, where men show renewed sexual interest as they meet new women. Unlike women, men are influenced by the Coolidge effect and seek variety in short-term partners. Research studies and experiments, including a Tinder-style study, have consistently shown that men have a higher preference for multiple sexual partners compared to women. (55,56,62,146,149,151,152)
-19.4	How does polygyny affect men, women and children in society?
-Polygynous societies result in lower status and freedom for women, more violence and abuse, and poorer mental and physical health. Children in polygynous families also have more problems and a higher mortality rate. Polygyny creates an imbalance in the number of unmarried men and women, leading to intense competition between men for mates and encouraging men's control over their female family members. Unmarried men are more likely to commit crime than married men, and polygynous husbands have more extramarital affairs than monogamous husbands. In addition, competition for wives is increasing in societies where women and children are important workers, leading to a larger number of unmarried men.
-19.5	Do competitions on psychopathic platforms add value and encourage improvement?
-Various platforms that encourage psychopathic behavior, such as cosmetic surgery, dating apps, pickup and alpha masculinity trainers, hook-up and ghost culture, style coaches, and online dating profile designers are growing in popularity. (58, 57, 60)
-19.6	How can man spend his free time without psychopathic entertainment?
-• 	Make time with family, enjoy outdoor activities, creative hobbies, play games, read, and volunteer. Avoid sexualized content on platforms like TikTok and Instagram.
-• Contribute 	to environmental sustainability by repairing past damage and supporting local food production rather than relying on distant imports.
- 
-20.	What defined the pre-religious barbarian era?
-Common behaviors during this period included living in clans, following minor prophets and gods, showing pride and boasting, practicing polygyny, gambling and drinking alcohol, adopting superstitions, engaging in various sexual activities, the Seeking personal gain and practicing usury. Bloody fights were common, and physical characteristics such as muscles, height, and testosterone levels in males and physical characteristics such as breast and hip size in females played important roles in attraction. (188)
-21.	Modern Psychopathic Barbarism: Barbaropathy?
- 
-• 	Berlin is home to different clans: Lebanese Shiites, Lebanese Sunnis, Turks, Afghans, hipsters, conservatives and Moroccans.
-• 		Attraction factors: muscles, bodybuilding, testosterone injections for men; Cosmetic procedures, big breasts, social media presence for women.
-• 		Online clans: Facebook groups, fan communities, YouTube algorithms that result in continuous recommendations on similar topics.
-• 	Influencers and Followers: New Age Prophets?
-• 	Pride and boasting: Reinforced on social media.
-• 	Marital dynamics: polygamy, polygyny, catch-up strategies, masculinity/femininity coaches, red/black/yellow pill ideologies.
-• 	Gambling: smartphone apps, online casinos, Coin Master.
-• 	Superstitions: Energy spirituality on social media.
-• 	Sexual activity: Bumble, Hinge, Tinder lead to open relationships and hypergynia.
-• 	Greed and usury: crypto trading, forex, passive income, real estate investments. (189)
- 
-22.	Would psychopathic solutions eliminate the inequality created by the psychopathic system?
- 
-Under Boris Palmer's proposal, asylum seekers should be required to work, welfare benefits abolished and non-compliant individuals deported (196).
-Other psychopathic solutions could include erecting extensive walls beyond Germany/EU borders and imposing sanctions on marginalized societies to prevent atomic bomb production.
- 
-23.	"Homo homini lupus" - One man is a wolf to another, but not always?
- 
-There have been 70 generations in the last 2000 years, but 33,000 future generations will have to deal with nuclear waste. Is it moral to harm 33,000 generations at once?
-Due to high morale, concern after the Fukushima accident, or heightened awareness, Germany has shut down its nuclear power plants, although other countries continue to invest in this technology.
-The decision to shut down nuclear power plants in Germany has resulted in significant costs, power shortages and economic losses for the population. (201,202, 203, 204,205,206)
- 
-24.	Wait for psychopaths to develop a nonprofit app, or take action themselves?
-An ownerless, non-profit group, free from hierarchies and sociopathic behavior, can develop development strategies for an ownerless voting app.
--	You can send an email if you also think that:
-Bill Gates, Google or any government will not and should not create this platform; it's up to the people.
-For 150 volunteers, participation instructions will be emailed. Your contribution to the selection of the first group platform (e.g., WhatsApp, Telegram) is appreciated.
- 
--	This content is free. If you wish to pay the paper, ink and time costs of the person who provided you with this copy:
--	Founding a group in which we jointly consider how to found such a platform?
-Email: jmehr88@gmail.com
- 
-
- 
-Name: AJ More
-IBAN: DE73500105175414887887
-Paypal: jmehr88@gmail.com
-Alternative payment methods via email. Jmehr88@gmail.com
-Compensation calculation: If working 8 hours a day, 1 in 48 people addressed pays and each interaction lasts 10 minutes, €124 per copy would be required, based on the €12.5 hourly minimum wage and printing costs. As this price is not affordable for most, any lower price even 5€ would be acceptable.
